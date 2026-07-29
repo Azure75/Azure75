@@ -7,4 +7,4 @@
 ## professional at making mistake most of the time
 
 
-### feel free to look around
+### trying to learn unity so i won't be broke after graduation and feel free to look around
